@@ -1,4 +1,4 @@
-### Bem-vindo ao perfil, sou Renan
+### Bem-vindo ao perfil, sou Renix
 ### Skills
 
 <p align="left">
